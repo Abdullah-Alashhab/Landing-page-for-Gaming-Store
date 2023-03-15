@@ -1,1 +1,1 @@
-# Landing-page-for-Gaming-Store
+# Landing-page-for-gaming-center
